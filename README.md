@@ -40,6 +40,6 @@
 ![image](https://github.com/xu1255362618/daima/assets/143588148/537ad37e-29c2-44f2-976a-5f9396bc9697)
 
 
-![Uploading image.png…]()
+
 
 
