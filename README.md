@@ -41,5 +41,12 @@
 
 
 
+龙芯
+![image](https://github.com/xu1255362618/daima/assets/143588148/034b3eae-3dc2-43cb-9219-4fbde2f7f9f9)
+![image](https://github.com/xu1255362618/daima/assets/143588148/5a496169-8a58-4511-8829-5ed586123185)
+
+![image](https://github.com/xu1255362618/daima/assets/143588148/65d1ac98-3a0d-4f5d-b04f-07f78d85874d)
+
+![image](https://github.com/xu1255362618/daima/assets/143588148/633aa6a9-3274-4369-a957-a724fe09385e)
 
 
